@@ -1,7 +1,7 @@
 - 👋 Hi, I’m tickle xP
 - 👀 I’m interested in none but you! 
 - 🌱 woop woop! 
-- 📫 sahilgulmohur@gmail.com
+- 📫 snap up - imacc_x
 
 <!---
 TickleMeElmoo/TickleMeElmoo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
